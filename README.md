@@ -1,4 +1,4 @@
-# 🕊 NO TO WAR 🕊
+# 🕊 NO WAR 🕊
 
 ### Hi there 👋
 
